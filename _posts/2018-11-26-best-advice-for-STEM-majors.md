@@ -94,4 +94,4 @@ Ideally, you should exercise every day, as long as it is fun and you enjoy it. Y
 
 ## Wrap-up
 
-Hopefully some of this information was helpful to you. Please send us your thoughts (or any points that we should add to this post) on this blog post through the Contact page. We would also love to hear any ideas you may have for blog post topics. 
+Hopefully some of this information is helpful to you. College can be difficult at times, and we want to use our experiences to help make your time in college more productive, more enjoyable, and as beneficial to your career as possible. 
